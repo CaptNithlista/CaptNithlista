@@ -2,5 +2,5 @@
 - 👀 I’m interested in Music
 - 🌱 I’m currently learning C# and python
 - 📫 How to reach me: ill find you(discord)
-- 😄 Pronouns: he/him/ hey you 
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: your mother doesn't know java
